@@ -1,1 +1,1 @@
-# kist_2022_-_-
+# kist_2022_summer_internship
